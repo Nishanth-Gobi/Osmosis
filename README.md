@@ -1,5 +1,3 @@
-# Osmosis
-
 ## Neembu Panni with Nishanth
 
 Hello TG family, welcome to Neembu Panni with Nishanth.
@@ -38,7 +36,7 @@ Our first guest for today is the tiger of bollywood, without the stripes of cour
 
 - Tiger Sheroff
 - SRK
-- Katrina 
+- Ranveer
 
 > Thank you Sallu Ji, I think the nation will sleep in peace tonight after knowing the reasons behind why you have not married (even once)
 
@@ -71,6 +69,58 @@ Music
 // Dialog - You do, you girl & not a karen
 
 ---
+### Loki
+
+Forget guests from other countries, our next guest is from another Multi-verse, any guesses? 
+
+---
+// Music
+
+---
+
+> All hail Loki, the rightful king of Yotenheim, the prince of Asgard and the god of mischief.
+>
+> Hello Mr. Loki, how are you doing?
+
+// Puny Humans, kneel before me! I said kneel.
+
+--// *Not to men like you*
+
+> Yeah, that's a different movie!
+
+> How are things going for you Mr. Loki? Last time you were here, you wanted to be the king of Midgard/Earth, any similar agenda this time??
+
+// Other things on my mind
+
+> Glad to know that, 
+> Is it true you stabbed Thor as a kid?
+turned into a snake, he picked me up, “it’s me!”, stabbed him, fun times
+
+//
+
+> Rematch with Stark, who’d win?
+Me ofc, Big Man in a Suit of Armor, take it off - piece of lembas
+
+//
+
+> Are you sure you’re adopted??
+Similarity with Hela, Frigga mom’s love
+
+//
+
+> Is Mobius truly your friend?
+
+// Hope so, got my back, believed in me, Thor-like (I’ve never met this man in my life)
+
+> Sylvie, what happened?
+
+// Ah so you wish to mock me dear mortal… it’s complicated
+
+> Reaction to your variants?
+Honestly embarrassing at first, alligator one is cute, Old me seemed sad. President me? The worst. Every
+embarrassment embodied
+
+---
 ### Peppa Pig
 
 > The last guest for tonight, we have a very special pig, yup, flying in all the way from far
@@ -101,7 +151,4 @@ Music
 // Answer
 
 // Can I have a chocolate cake?? 
-
-
-
 
